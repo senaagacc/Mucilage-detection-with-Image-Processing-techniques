@@ -35,3 +35,4 @@ minimize etme, doğru anlayışı sağlama ve sürdürülebilir
 deniz kaynakları yönetimine katkıda bulunma amacını 
 taşımaktadır.
 
+
